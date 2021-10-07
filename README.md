@@ -1,0 +1,1 @@
+# Adjusting-Pitchers-Salary-to-Inflation
